@@ -1,0 +1,1 @@
+https://www.notion.so/Lecture-06-C-Functions-and-Arrays-2c6a9af81c988098848bc9f270154bd8?source=copy_link
